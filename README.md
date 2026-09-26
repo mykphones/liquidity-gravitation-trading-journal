@@ -1,0 +1,1 @@
+Liquidity gravitation model journal
